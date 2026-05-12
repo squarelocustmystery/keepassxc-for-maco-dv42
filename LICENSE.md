@@ -1,4 +1,4 @@
-# 
+# elite KeePassXC for macOS Addon | ransomware-shield + phishing-detection offers the most advanced KeePassXC for macOS addon, with ransomware-shield and phishing-detection. Ideal
 
 
 
